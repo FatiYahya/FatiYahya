@@ -1,7 +1,7 @@
 ### Hi there , I'am Fatima-Ezzahra 👋
 
 
-🔭 I’m currently working on a **GREAT** project  ✨ **STAY TUNED !**✨
+🔭 I’m currently working on a **GREAT** project  ✨ **STAY TUNED !** ✨
 
 #### Find me around the web 🌎:
 
