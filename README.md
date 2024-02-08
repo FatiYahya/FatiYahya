@@ -1,8 +1,6 @@
 ### Hi there , I'am Fatima-Ezzahra 👋
 
 
-🔭 I’m currently working on a **GREAT** project  ✨ **STAY TUNED !** ✨
-
 #### Find me around the web 🌎:
 
 <a href="https://www.linkedin.com/in/fatima-ezzahra-yahya/">  
